@@ -1,2 +1,0 @@
-# tiagosousac.github.io
-.
